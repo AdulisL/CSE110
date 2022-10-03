@@ -16,7 +16,7 @@
 
 To schedule an interview, please call me at (415) 416-5759. The best time to
 reach me is between 9am and 6pm PTS.
-- [Resume](/My_Resume.pdf)
+- [Resume](My_Resume.pdf)
 - [Linkedin](https://www.linkedin.com/in/masfaw/)
 ___
 >  ##### _**Thank you for taking the time to review my page**_.
